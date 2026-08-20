@@ -1,6 +1,4 @@
-<p align="center">
-  (Feel free to use them, take inspo or whatever you want)
-</p>
+(Feel free to use them, take inspo or whatever you want)
 ## Mononoke stamps (gif)
 <img src="https://i.ibb.co/qFFH6Ntj/ezgif-com-crop-19.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/DfH2w9XF/ezgif-com-crop-18.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/WvpvW70z/ezgif-com-crop-17.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/cKKG04mC/ezgif-com-crop-16.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/ynfjMLQM/ezgif-com-crop-15.gif" style="width: auto; height: auto;"></br>
 <img src="https://i.ibb.co/ccBRFj2w/ezgif-com-crop-14.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/qYVBSf4s/ezgif-com-crop-13.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/Fkr4h4t0/ezgif-com-crop-12.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/6J7W4mzm/ezgif-com-crop-10.gif" style="width: auto; height: auto;">&nbsp;&nbsp;<img src="https://i.ibb.co/JwXcgYNn/ezgif-com-crop-11.gif" style="width: auto; height: auto;"></br>
