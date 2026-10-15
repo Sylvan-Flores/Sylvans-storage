@@ -5,10 +5,6 @@
 </p>
 
 <p align="center">
-<img src="https://i.ibb.co/YBKSSJ4d/Untitled296-20261015104545.png"; style="width: 1012px; height: auto;">
-</p>
-
-<p align="center">
 <img src="https://i.ibb.co/vvYhhNHv/my9games.png"; style="width: 1012px; height: auto;">
 </p>
 
