@@ -1,4 +1,4 @@
-## i can't believe i'm shitposting on github (there're 4 pictures in total, if they didn't load, try refreshing)
+## i can't believe i'm shitposting on github (there're 3 pictures in total, if they didn't load, try refreshing)
 
 <p align="center">
 <img src="https://i.ibb.co/n5Z0QwP/grid.png"; style="width: 1012px; height: auto;">
