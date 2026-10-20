@@ -5,9 +5,9 @@
 </p>
 
 <p align="center">
-<img src="https://i.ibb.co/vvYhhNHv/my9games.png"; style="width: 1012px; height: auto;">
+<img src="https://i.ibb.co/7d0J8g2D/9koma-1.png"; style="width: 1012px; height: auto;">
 </p>
 
 <p align="center">
-<img src="https://i.ibb.co/7d0J8g2D/9koma-1.png"; style="width: 1012px; height: auto;">
+<img src="https://i.ibb.co/RkWGjDDX/Pixel-by-rth3959-design-by-MATRIX.png"; alt="Pixel by rth3959, design by MATRIX"; style="width: 1012px; height: auto;">
 </p>
